@@ -33,6 +33,26 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
+The Cronycles of Englonde with the dedes of popes and emperours / and alſo the deſcripcyon of Englon
+1. Tabula.
+
+    _ ¶ Here begynneth a ſhorte and a breue Table / for to 〈…〉 wherof ony man ſhall pleaſe hȳ to rede in this boke.
+
+    _ ¶ Here begynneth the hyſtor• of ye holy Patryarkes / 〈◊◊◊〉.
+
+    _ ¶ Here begynneth the ſeconde parte / 〈◊〉 of the kyngdome of Brytayne.
+
+    _ ¶ Here begynneth the thyrde part / and cōtynueth vnto the Natiuite of Chryſt.
+
+    _ ¶ Here begynneth ye fourth parte / & contynueth vnto ye comynge of ye Saxons.
+
+    _ ¶ Here begynneth the .v. parte / & contynueth vnto the comynge of the Daues.
+
+    _ ¶ Here begynneth the popes and emperours & other notable thȳges in ye tyme of the Saxons beynge in Englonde.
+
+    _ ¶ Here begynneth the .vj. parte / & cōtynueth vnto ye comynge of ye Normans.
+
+    _ ¶ Here begynneth the .vij. parte / & contynueth vnto our dayes / that is to ſaye vnto kyng Edwardes regue the fourth the .xxiij. yere.
 
 **Types of content**
 
