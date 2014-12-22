@@ -33,7 +33,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The Cronycles of Englonde with the dedes of popes and emperours / and alſo the deſcripcyon of Englon
+
 1. Tabula.
 
     _ ¶ Here begynneth a ſhorte and a breue Table / for to 〈…〉 wherof ony man ſhall pleaſe hȳ to rede in this boke.
